@@ -1,1 +1,1 @@
-I'm an italian mathematichan and developer
+Mathematician, Developer, Bass Player, President of Modena LUG ConoscereLinux
